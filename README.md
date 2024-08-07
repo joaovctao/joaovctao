@@ -8,3 +8,7 @@ Utilizo esse espaço paraminha organizaçao e compartilhamento dos meus projetos
 ### você entrar em contato comigo
 
 oliveirajoaovictoralmida@gmail.com
+
+@victor.almeida76
+
+![](https://media1.tenor.com/m/utpaFe5Q1G0AAAAd/hajime-iwaizumi-haikyuu.gif)
